@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @josephcrypto
-- 👀 I’m interested in coding , gaming and techology.
+- 👀 I’m interested in coding , cctv installation service, digital techology and ancient civilization.
 - 🌱 I’m currently learning . . .
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me at Telegram - @thano13
